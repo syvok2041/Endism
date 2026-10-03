@@ -1,4 +1,7 @@
-# Endizm
-Endizm nedir:
+Endizm, ateizm ve nihilizmin birleşimi üzerine kurulu, üzerine kara bir absürdizm varyasyonu eklenmiş bir inançtır.
 
-Endizm hem Ateizm hemde Nihilizmin birlikteyken üstlerine kara absürdizmin bir varyasyonu eklenmesidir. Bu inançta kişi intih*rla yaşam arasında istediği seçmi yapabilir, inanç eğer ölümden sonrası yoksa ve ölmekle yaşamak hiç bir şey değiştirmeyecekse ölmenin bir anlamı olmadığını savunur. İntihara yakın kişiler genellikle bu hayatın aptalca, kötü ve adaletsiz olduğunu, "Ölümle yaşamanın bir farkı yoksa boş yere acı çekmenin anlamı yok." derler. Burda kişi kendi seçim hakkına sahiptir. Bu inanç(endizm) insanlardan mümkünse en az 15 dakika boyunca hem radikal hemde detaylıca her şeyi sorgulamalarını bekler.
+Bu inanca göre kişi, yaşam ile ölüm arasındaki seçimi kendi iradesiyle yapar. Eğer ölümden sonrası yoksa ve yaşamakla ölmek hiçbir şeyi değiştirmeyecekse, ölmek de tek başına bir anlam taşımaz.
+
+Hayatın aptalca, kötü ve adaletsiz olduğunu düşünen insanlar genellikle "Yaşamla ölüm arasında bir fark yoksa, boş yere acı çekmenin anlamı ne?" der. Endizm'de bu noktada belirleyici olan, seçim hakkının kişinin kendisinde olmasıdır.
+
+Bu inanç, insandan günde en az 15 dakika boyunca her şeyi hem radikal hem de detaylı bir şekilde sorgulamasını bekler.
